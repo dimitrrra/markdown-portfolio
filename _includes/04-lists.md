@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Brazilian Jiu Jitsu
+- Soccer
+- Field hockey
+- Family 
+- Friends
